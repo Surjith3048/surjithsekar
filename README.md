@@ -17,4 +17,4 @@
 
 ## 📫 Contact Me
 - Email: surjithsekar@gmail.com
-- LinkedIn: https://linkedin.com/in/your-link
+- LinkedIn: www.linkedin.com/in/surjith-sekar-0867182a5
