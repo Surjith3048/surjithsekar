@@ -16,5 +16,5 @@
 - SQL Practice Projects
 
 ## 📫 Contact Me
-- Email: surjithsekar@gmail.com
-- LinkedIn: www.linkedin.com/in/surjith-sekar-0867182a5
+- Email: Surjithsekar@outlook.com
+- LinkedIn: www.linkedin.com/in/surjith-sekar-1bbb823a1
